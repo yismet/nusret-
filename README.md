@@ -1,2 +1,0 @@
-# nusret-
-By nusret
